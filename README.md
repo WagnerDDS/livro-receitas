@@ -1,5 +1,7 @@
 # Livro de Receitas🧑‍🍳
 
-Olá! Bem vindo ao meu livro de receitas👍.
- - Strogonoff de soja
- - Pavê de chocolate
+Olá! Bem vindo ao meu livro de receitas ✌️.
+ - strogonoff de soja
+ - pavê de chocolate
+ - bolo de cenoura
+
